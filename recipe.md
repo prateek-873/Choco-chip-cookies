@@ -1,0 +1,1 @@
+*Mix the flour,cocoa,salt.Melt butter and bittersweet chocolate togetherover low heat.Remove from heat and add vanila essence.combine eggs and sugar beat at medium speed with a handmixer until light and fluffy about 3 minutes.Add chocolate mixture and stir until well combined.
